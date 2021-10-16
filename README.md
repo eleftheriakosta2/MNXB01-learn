@@ -1,4 +1,7 @@
 # MNXB01-learn
 
 Once upon a time,  
-there was a **beautiful** _princess_
+there were two _princesses_ ,
+whose looks was left to the judgement of the reader.
+
+
